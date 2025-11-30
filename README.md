@@ -1,0 +1,2 @@
+# Repositorio-Digital-de-Ciencias-Sociales---Grado-6-
+El Repositorio de Recursos Digitales "Culturas Prehispánicas en América" es un espacio digital abierto diseñado para la clase de ciencias sociales de grado sexto en Colombia, que organiza, almacena, difunde y preserva recursos educativos alineados al currículo del Ministerio de Educación Nacional sobre culturas andinas como Chavín, Tiwanaku e Inka.
